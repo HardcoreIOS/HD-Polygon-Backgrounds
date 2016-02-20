@@ -1,3 +1,3 @@
 # HD Polygon Backgrounds
 
-##### Free awesome HD Polygon Backgrounds. Star this project :)! I will constantly be updating this repo with more and more free HD Polygon backgrounds
+##### 89 Free awesome HD Polygon Backgrounds!!!!!!. Star this project :)! I will constantly be updating this repo with more and more free HD Polygon backgrounds
